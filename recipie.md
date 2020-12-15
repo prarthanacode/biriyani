@@ -1,0 +1,1 @@
+biryani is prepared with meat marinated with spices overnight and then soaked in curd  before cooking. The meat is sandwiched between layers of  basmati rice and cooked "in dum" after sealing the handi (vessel) with dough.  it requires meticulous attention to time and temperature to avoid over- or under-cooking the meat.this is recipie
